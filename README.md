@@ -8,8 +8,7 @@ meu nome e Emily vitoria
 
 ### você entrar em contatao comigo📫   
    
-paludettomarcelo@gmail.com
-
+emily.vitoria.araujo@escola.pr.gov.br
 @marcelopaludetto
 
 ![](https://media1.tenor.com/m/zsbHAkozbc4AAAAC/claude-de-alger-obelia.gif)
