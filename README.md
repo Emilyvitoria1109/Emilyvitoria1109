@@ -2,7 +2,7 @@
 
 meu nome e Emily vitoria
 
--estou estudando no alura
+-estou estudando na [ALURA](https://www.alura.com.br)
 -estou me desenvolvendo na linguagem JavaScript
 -utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvido 
 
