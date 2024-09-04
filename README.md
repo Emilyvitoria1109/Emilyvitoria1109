@@ -10,4 +10,4 @@ meu nome e Emily vitoria
    
 emily.vitoria.araujo@escola.pr.gov.br
 @Emilyvitoria1109
-![](https://media1.tenor.com/m/zsbHAkozbc4AAAAC/claude-de-alger-obelia.gif)
+![](https://i.pinimg.com/564x/6b/44/3b/6b443b998f24739d61aa392651cf1ae7.jpg)
